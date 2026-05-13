@@ -17,3 +17,4 @@ Estou em busca de oportunidades para desenvolver experiência prática, contribu
 projetos relevantes e evoluir como profissional na área de desenvolvimento de sistemas e 
 inteligência artificial.
 Segue aqui um link do meu site e com mais informaçoes - [Diogo.dev (1).pdf](https://github.com/user-attachments/files/27732126/Diogo.dev.1.pdf)
+Linkedin - https://www.linkedin.com/in/diogo-de-oliveira-dias-7665163b6/
